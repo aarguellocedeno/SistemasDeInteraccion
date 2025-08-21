@@ -1,7 +1,7 @@
 # TRAILER ZOOTOPIA 2
 * Ana Gabriela Argüello Cedeño
 * Laura Isabel Olivero Alvarez
-* audacity =
+* audacity = https://drive.google.com/drive/folders/1ouAhNQCz8ue1EyT-BW31LenpVhTl0c9Q?usp=drive_link
 * VIDEO TRAILER = https://drive.google.com/file/d/1txLvYYpQYB0Wcq-mCdRLujajJQ5HeM5T/view?usp=sharing
 
   
