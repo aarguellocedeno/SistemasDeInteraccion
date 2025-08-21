@@ -1,4 +1,4 @@
-#TRAILER ZOOTOPIA 2
+# TRAILER ZOOTOPIA 2
 * Ana Gabriela Argüello Cedeño
 * Laura Isabel Olivero Alvarez
 * audacity =
